@@ -7,7 +7,7 @@
 <div align="center">
 <img src="MASS-SER-BOTZ.jpg" alt="Pepe" width="170" />
 
-## MASS SER 🌝💝
+## 👹 MASS SER 👹
 
 </div>
 
