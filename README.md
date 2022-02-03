@@ -5,7 +5,7 @@
 
 
 <div align="center">
-<img src="xeon.jpg" alt="Pepe" width="170" />
+<img src="MASS-SER-BOTZ.jpg" alt="Pepe" width="170" />
 
 ## MASS SER 🌝💝
 
